@@ -1,6 +1,4 @@
-## I am the best hacker of all time
-- Kali linux & arch linux veteran 😎
-- Spark initiate 📀
+## Those who know
 - Motorbike enthusiast 🏍
 - I cook in any and all domains i get my hands on 🔥🔥
 
